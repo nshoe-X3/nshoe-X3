@@ -7,5 +7,6 @@ if i dont want you interacting with me respect that i just dont feel like talkin
 
 remember to check my strawpage (when i update it) to learn a few more things about me ig :þ
 byeee!!
+![Screenshot 2025-03-13 22 46 09](https://github.com/user-attachments/assets/c0a07add-297e-424d-a78c-44ab84f9352d)
 
 ｡･:★:･｡
