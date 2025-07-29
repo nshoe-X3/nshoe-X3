@@ -1,8 +1,10 @@
 ｡･:★:･｡
 
 hiiiii!! my name is N/Sebastian -
-i play pony town and chill at the defunct md area (by the bakery) 
-im awkward with strangers so if i dont talk to you uhh yeah ✌️
+I play pony town and chill at the defunct md area (by the bakery) 
+im transmasc and go with either he/him or they/them idrc
+you'll always see me with my husband and sometimes we'll come off rude but we arent really! we dont mind people we're just awkward :P
+my ponies are NYATT for copying, inspo is chill but once I see aspects that look really similar im chewing you out like it's an episode of Cheaters
 
 remember to check my strawpage (link here > https://nshoex3.straw.page/) to learn a few more things about me ig :þ
 byeee!! (I HAVE TO UPDATE IT SO UH)
