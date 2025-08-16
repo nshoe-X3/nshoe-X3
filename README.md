@@ -1,7 +1,7 @@
 ｡･:★:･｡
 
-hiiiii!! my name is N/Sebastian -
-I play pony town and chill at the defunct md area (by the bakery) 
+hiiiii!! my name is whatever my profile name is currently -
+I play pony town and chill at the glitch prod area or utdr area 
 
 im transmasc and go with either he/him or they/them idrc -
 you'll always see me with my husband and sometimes we'll come off rude but we arent really! we dont mind people we're just awkward :P -
