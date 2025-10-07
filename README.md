@@ -1,12 +1,11 @@
 ｡･:★:･｡
 
-hiiiii!! my name is pomni -
-I play pony town and chill at the glitch prod area or utdr area 
+HEY CLOD! my name is peridot or pomni (i wont mind either)
+im transmasc and use he/him or they/them pronouns (again, i dont mind either)
+im very active on places like ponytown and you'll normally catch me at the glitch prod. area!! and with my husband <33 we are quite shy but we don't bite :) (maybe..)
 
-im transmasc and go with either he/him or they/them idrc -
-you'll always see me with my husband and sometimes we'll come off rude but we arent really! we dont mind people we're just awkward :P -
-my ponies are NYATT for copying, inspo is chill but once I see blatent copying IM BITING YOU IM BITING YOU IM BITING YOU -
-
+bee tee dubs, if you see my ponies and get googoo eyes for them, DO NOT COPY THEM AT ALL I HAVE BAD HISTORY WITH PPL COPYING ME OR MY BF SO IT SICKENS ME DONT DO IT YOU CLODS >:[
+anyyyyways, bye!
 SIGN MY ATA!!!!! 
 
 also heres my strawpage :þ https://nshoex3.straw.page/
