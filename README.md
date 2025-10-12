@@ -5,7 +5,7 @@
 
 ｡･:★:･｡
 
-HEY CLOD! my name is peridot or pomni (i wont mind either)
+HEY CLOD! my name is peridot, ruby or pomni (i wont mind either)
 im transmasc and use he/him or they/them pronouns (again, i dont mind either)
 im very active on places like ponytown and you'll normally catch me at the glitch prod. area!! and with my husband <33 we are quite shy but we don't bite :) (maybe..)
 
