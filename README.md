@@ -1,18 +1,20 @@
-<img width="300" height="300" alt="Screenshot 2025-04-26 19 14 34" src="https://github.com/user-attachments/assets/002c4361-febe-4a8a-b0c3-e00fae108a85" />
-<img width="300" height="300" alt="seven wet rats" src="https://github.com/user-attachments/assets/cc9d7fa5-a987-4a22-a6c2-3b4dd013c759" />
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=tbys9111bhsbxhrdlkohj0che&cover_image=true&theme=default&show_offline=true&background_color=268229&interchange=false&bar_color=91ff7a&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+
+｡･:★:･｡
+## <p align="center"> 【»•» WHATS A HUMAN BEING GOTTA BE LIKE? «•«】</p>
+
+HEY HEY HEY hi. my name is uh.. well im *still* figuring that out for myself but whatever my github says? thats it.
+im 16 and im a young artist drawing with my finger.
+
+i infrequently play ponytown with my husband (schools a bitch) but when we play we sit in the hazbin hotel area.. its so calming on the outskirts no drama in sight
+im shy so if i dont speak to you im just.. not feeling it.
+i also get uncomfy with strangers plonking their butts down next to me, so if i move away dont follow me just go away/nicely
+
+i got other places you can look at my info (if youre randomly into that?)
+sorry this is lackluster but im not obligated to give you every nook and cranny about myself ^‿^
+
+BYEEEEEEE!!!
 
 ｡･:★:･｡
 
-HEY CLOD! my name is peridot, ruby or pomni (i wont mind either)
-im transmasc and use he/him or they/them pronouns (again, i dont mind either)
-im very active on places like ponytown and you'll normally catch me at the glitch prod. area!! and with my husband <33 we are quite shy but we don't bite :) (maybe..)
-
-bee tee dubs, if you see my ponies and get googoo eyes for them, DO NOT COPY THEM AT ALL I HAVE BAD HISTORY WITH PPL COPYING ME OR MY BF SO IT SICKENS ME DONT DO IT YOU CLODS >:[
-anyyyyways, bye!
-SIGN MY ATA!!!!! 
-
-also heres my strawpage :þ https://nshoex3.straw.page/
-
-｡･:★:･｡
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=tbys9111bhsbxhrdlkohj0che&cover_image=true&theme=default&show_offline=true&background_color=c68e17&interchange=false&bar_color=ffe87c&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
