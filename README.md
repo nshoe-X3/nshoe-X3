@@ -1,7 +1,10 @@
 
-
-｡･:★:･｡
-## <p align="center"> 【»•» WHATS A HUMAN BEING GOTTA BE LIKE? «•«】</p>
+<p align="center">
+<a href="https://github.com/nshoe-x3">
+  <img src="https://i.postimg.cc/s2D991LF/Untitled112-20251129180434.png">
+</a>
+</p>
+<p align="center"> »•» WHATS A HUMAN BEING GOTTA BE LIKE? «•« </p>
 
 HEY HEY HEY hi. my name is uh.. well im *still* figuring that out for myself but whatever my github says? thats it.
 im 16 and im a young artist drawing with my finger.
