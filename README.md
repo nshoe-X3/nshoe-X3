@@ -1,4 +1,3 @@
-
 <p align="center">
 <a href="https://github.com/nshoe-x3">
   <img src="https://i.postimg.cc/s2D991LF/Untitled112-20251129180434.png">
@@ -17,6 +16,8 @@ i got other places you can look at my info (if youre randomly into that?)
 sorry this is lackluster but im not obligated to give you every nook and cranny about myself ^‿^
 
 BYEEEEEEE!!!
+
+#### BANNER MADE BY HUSBAND @losinstreak
 
 ｡･:★:･｡
 
