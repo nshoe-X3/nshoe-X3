@@ -1,6 +1,6 @@
 <p align="center">
 <a href="https://github.com/nshoe-x3">
-  <img src="https://i.postimg.cc/8cMZZKp9/Untitled81-(1).png">
+  <img src="https://i.postimg.cc/hvH3MzLh/Untitled100.jpg">
 </a>
 </p>
 <p align="center"> »•» WHATS A HUMAN BEING GOTTA BE LIKE? «•« </p>
