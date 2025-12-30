@@ -3,16 +3,12 @@
   <img src="https://i.postimg.cc/k5pZDp2B/Untitled100.png">
 </a>
 </p>
-<p align="center"> »•» WHATS A HUMAN BEING GOTTA BE LIKE? «•« </p>
+<p align="center"> »•» YOU COULD BE THE BEAUTY AND I COULD BE THE MONSTER «•« </p>
 
-HEY HEY HEY hi. my name is uh.. well im *still* figuring that out for myself but whatever my github says? thats it.
-im 16 and im a young artist drawing with my finger.
+heyyy, my names val or whatever else I'll think of. I'm 16 and an artist.
 
-i infrequently play ponytown with my husband (schools a bitch) but when we play we sit in the hazbin hotel area.. its so calming on the outskirts no drama in sight
-im shy so if i dont speak to you im just.. not feeling it.
-i also get uncomfy with strangers plonking their butts down next to me, so if i move away dont follow me just go away/nicely
+i play ponytown sometimes with my husband at the hellaverse area. im not comfy with strangers so i most likely will move away. no hard feelings i just don't like it :V
 
-i got other places you can look at my info (if youre randomly into that?)
 sorry this is lackluster but im not obligated to give you every nook and cranny about myself ^‿^
 
 BYEEEEEEE!!!
