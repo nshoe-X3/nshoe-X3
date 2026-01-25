@@ -5,7 +5,7 @@
 </p>
 <p align="center"> »•» YOU COULD BE THE BEAUTY AND I COULD BE THE MONSTER «•« </p>
 
-heyyy, my names val or whatever else I'll think of. I'm 16 and an artist.
+heyyy, my names val or nathaniel. I'm 16 and an artist.
 
 i play ponytown sometimes with my husband at the hellaverse area. im not comfy with strangers so i most likely will move away. no hard feelings i just don't like it :V
 
