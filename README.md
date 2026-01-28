@@ -1,13 +1,16 @@
 <p align="center">
 <a href="https://github.com/nshoe-x3">
-  <img src="https://i.postimg.cc/k5pZDp2B/Untitled100.png">
+  <img src="">
 </a>
 </p>
 <p align="center"> »•» YOU COULD BE THE BEAUTY AND I COULD BE THE MONSTER «•« </p>
 
-heyyy, my names val or nathaniel. I'm 16 and an artist.
+gello, my names nathaniel (nate for short) I'm 16 and an artist.
 
-i play ponytown sometimes with my husband at the hellaverse area. im not comfy with strangers so i most likely will move away. no hard feelings i just don't like it :V
+he/him or they/them
+
+usually will find me on pony town with my husband. not a big fan of strangers so id rather you whisper me or smth im just socially anxious ･⁠_⁠･'
+if you don't like me just hide me, why do you think you have the option to?
 
 sorry this is lackluster but im not obligated to give you every nook and cranny about myself ^‿^
 
