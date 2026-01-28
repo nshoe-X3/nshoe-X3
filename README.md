@@ -10,6 +10,7 @@ gello, my names nathaniel (nate for short) I'm 16 and an artist.
 he/him or they/them
 
 usually will find me on pony town with my husband. not a big fan of strangers so id rather you whisper me or smth im just socially anxious ･⁠_⁠･'
+
 if you don't like me just hide me, why do you think you have the option to?
 
 sorry this is lackluster but im not obligated to give you every nook and cranny about myself ^‿^
