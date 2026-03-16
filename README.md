@@ -15,7 +15,7 @@ usually will find me on pony town with my husband. not a big fan of strangers so
 
 if you don't like me just hide me, why do you think you have the option to?
 
-sorry this is lackluster but im not obligated to give you every nook and cranny about myself ^‿^
+okay im done i don't wanna write no more 🥹
 
 BYEEEEEEE!!!
 
