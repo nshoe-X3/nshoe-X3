@@ -3,13 +3,13 @@
   <img src="">
 </a>
 </p>
-<p align="center"> »•» YOU COULD BE THE BEAUTY AND I COULD BE THE MONSTER «•« </p>
+<p align="center"> »•» WITHOUT YOU, I'D CEASE TO EXIST «•« </p>
 
-gello, my names nathaniel (nate for short) I'm 16 and an artist.
+gello, my names nathaniel (nate for short) or ribbit. I'm 16 and an artist.
 
 he/him or they/them
 
-this is my strawpage for extra swag info https://nshoex3.straw.page/
+this is my strawpage for extra swag info https://nshoex3.straw.page/ IT IS UNFINISHED SHHHHHHHH I NEED TO CHANGE IT
 
 usually will find me on pony town with my husband. not a big fan of strangers so id rather you whisper me or smth im just socially anxious ･⁠_⁠･'
 
