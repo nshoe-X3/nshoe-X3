@@ -3,21 +3,15 @@
   <img src="">
 </a>
 </p>
-<p align="center"> »•» WITHOUT YOU, I'D CEASE TO EXIST «•« </p>
+<p align="center"> »•» EVERY NIGHT HE SAT UPON A THRONE OF PUMPKIN PIE «•« </p>
 
-gello, my names nathaniel (nate for short) or ribbit. I'm 16 and an artist.
+hihihi i am nathanial :3 im 16 years old and i like to draw a lot. i got by he/him or they/them idrc.
 
-he/him or they/them
+i use this for ponytown, and i usually am in the glitch productions area with my husband @rodolfo <3 and friends!
 
-this is my strawpage for extra swag info https://nshoex3.straw.page/ IT IS UNFINISHED SHHHHHHHH I NEED TO CHANGE IT
+dnis will be found in other places like my strawpage and blah blah blah
 
-usually will find me on pony town with my husband. not a big fan of strangers so id rather you whisper me or smth im just socially anxious ･⁠_⁠･'
-
-if you don't like me just hide me, why do you think you have the option to?
-
-okay im done i don't wanna write no more 🥹
-
-BYEEEEEEE!!!
+what even is there to write im tiredddd
 
 ｡･:★:･｡
 
