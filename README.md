@@ -29,10 +29,19 @@
 <p align="center">
 <a href="https://nshoe.atabook.org/"/>
 ★ atabook ★ </a>
+  
+<p align="center">
+<a href="https://pronouns.cc/@nshoe"/>
+★ pronouns.cc ★ </a>
 
+  
 <p align="center">
 <a href="https://rentry.co/nshoe-x3"/>
 ★ rentry ★ </a>
+
+
+
+  
 
 <p align="center">
 <a href="https://tumblr.com/@nshoe-x3"/>
