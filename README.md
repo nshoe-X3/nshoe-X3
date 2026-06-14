@@ -39,7 +39,7 @@
 ★ tumblr ★ </a>
 
 <p align="center">
-<a href="https://nshoex3.straw.page/"/>
+<a href="https://www.bandlab.com/nshoe/"/>
 ★ bandlab ★ </a>
 
 
