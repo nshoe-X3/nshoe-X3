@@ -24,16 +24,26 @@
 
 <p align="center">
 <a href="https://nshoex3.straw.page/"/>
-★* strawpage *★ </a>
+★ strawpage ★ </a>
+
+<p align="center">
+<a href="https://nshoe.atabook.org/"/>
+★ atabook ★ </a>
+
+<p align="center">
+<a href="https://rentry.co/nshoe-x3"/>
+★ rentry ★ </a>
+
+<p align="center">
+<a href="https://tumblr.com/@nshoe-x3"/>
+★ tumblr ★ </a>
 
 <p align="center">
 <a href="https://nshoex3.straw.page/"/>
-★* strawpage *★ </a>
+★ bandlab ★ </a>
+
 
 <p align="center">
-<a href="https://nshoex3.straw.page/"/>
-★* strawpage *★ </a>
-
-
-｡･:★:･｡
+  ｡･:★:･｡
+</p>
 
