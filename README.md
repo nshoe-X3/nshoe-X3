@@ -23,16 +23,8 @@
 
 
 <p align="center">
-<a href="https://nshoex3.straw.page/"/>
-★ strawpage ★ </a>
-
-<p align="center">
-<a href="https://nshoe.atabook.org/"/>
-★ atabook ★ </a>
-  
-<p align="center">
-<a href="https://pronouns.cc/@nshoe"/>
-★ pronouns.cc ★ </a>
+extra links!
+</p>
 
   
 <p align="center">
