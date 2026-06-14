@@ -7,6 +7,8 @@
 
 hihihi i am nathanial :3 im 16 years old and i like to draw a lot. i got by he/him or they/them idrc.
 
+STRAWPAGE I FORGOT TO LINK IT LMAO https://nshoex3.straw.page/
+
 i use this for ponytown, and i usually am in the glitch productions area with my wife @rodolfo <3 and friends!
 
 not much to my dni except if youre under 13 or over 18
