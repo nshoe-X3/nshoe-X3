@@ -13,7 +13,7 @@
 <p align="center"> »•» EVERY NIGHT HE SAT UPON A THRONE OF PUMPKIN PIE «•« </p>
 
 </p>
-<p align="center"> hihihi i am nathanial :3 im 16 years old and i like to draw a lot. i got by he/him or they/them idrc. </p>
+<p align="center"> hihihi i am nathanial :3 im 17 years old and i like to draw a lot. i got by he/him or they/them idrc. </p>
 
 </p>
 <p align="center"> i use this for ponytown, and i usually am in the glitch productions area with my wife @rodolfo <3 and friends! </p>
